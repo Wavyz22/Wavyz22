@@ -1,0 +1,7 @@
+-👋 Hi, I’m @Wavyz2
+-👀 I’m interested in Scripting, Game hacking, Photography
+-🌱 I’m currently learning Game hacking
+-💞️ I’m looking to collaborate on, fuck knows mate anything
+-📫 How to reach me on github or Email: thatcherjamie@gmail.com
+-😄 Pronouns: he/his/him
+-⚡ Fun fact: i fucked ur mum
