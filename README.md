@@ -2,5 +2,4 @@
 -👀 I’m interested in Scripting, Game hacking, Photography
 -🌱 I’m currently learning Game hacking
 -💞️ I’m looking to collaborate on, god knows mate anything
--📫 How to reach me on github or Email: thatcherjamie@gmail.com
 -😄 Pronouns: he/his/him
